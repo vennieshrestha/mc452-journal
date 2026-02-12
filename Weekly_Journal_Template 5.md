@@ -1,4 +1,4 @@
-# Week X: Exploring Research Tools and Theory
+# Week 5: Exploring Research Tools and Theory
 
 **Date:**  02/12/2026 
 **Phase:** Journalist 
